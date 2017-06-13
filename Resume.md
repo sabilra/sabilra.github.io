@@ -2,7 +2,9 @@
 Mahasiswa Ilmu Komputer IPB
 
 *Raffles Hills A 1 no. 9 Cimanggis, Depok, Jawa Barat*
+
 *+62-852-1284-5817*
+
 *salsabilaramadhani4@gmail.com*
 
 # Pendidikan
@@ -24,4 +26,4 @@ Jul 2009 &ndash; Jul 2012
 * Editing Photo
 
 # Hobi
-*Menggambar, menulis, membaca, filateli
+*Menggambar, menulis, membaca, filateli*
